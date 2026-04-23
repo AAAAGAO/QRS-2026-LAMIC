@@ -1,1 +1,1 @@
-#### We are compiling the relevant appendices and will update them soon.
+Information about user studies and application queries can be found in our materials.
